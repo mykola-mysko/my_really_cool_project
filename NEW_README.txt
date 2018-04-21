@@ -1,1 +1,1 @@
-Really cool project.
+This project is totally awesome, you guys!
